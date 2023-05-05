@@ -1,0 +1,2 @@
+# geolabisfinaluri
+geloabis bolo davaleb
